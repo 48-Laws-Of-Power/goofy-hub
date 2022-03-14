@@ -1,6 +1,5 @@
 get shit on by goofy-hub
-cheeam has slimjim dick
-cheeam has monster dick
+If you're here from goofy-hub you're highkey a W person ong fr deadass
 bozo
 here's yo damn cheat methods idiots
 
